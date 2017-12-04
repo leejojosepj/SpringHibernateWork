@@ -1,0 +1,1 @@
+Copyright &copy; https://smoothviews.blogspot.in/
